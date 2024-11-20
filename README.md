@@ -1,7 +1,7 @@
 # GTA San Andreas APK 2024 Update Terbaru untuk Android
 ---
 
-## Download Now: [GTA San Andreas ](https://apkhihe.com/xalaflix/)
+## Unduh: [GTA San Andreas ](https://apkhihe.com/xalaflix/)
 
 
 
